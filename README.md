@@ -1,0 +1,65 @@
+# ITZY – Trigger
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+私だけが違ってるのかと不安になることもあるし
+Too wet な感情に溺れ息ができなくなることもあるし
+思考回路 絡まって
+Can't let go of your negativity
+闇に堕ちてはまた I rise
+そうね、パターン化されたみたいに
+刺さる言葉とか、無視できない視線いつも一緒
+"I don't care." って言ったり
+してもあれこれと手を変え品変え Creep into me
+消せない心のTint
+Words are bullets
+誰もが Snipers in disguise
+Shoot
+Come on shoot me in my heart
+聞こえるわ Trigger
+Pull it now
+Right at me
+Bang
+コトダマが貫通
+とどめないでThrough
+Try in vain
+No triggers in my soul
+Words hit hard but let it go
+撃たれたふりして Hahaha
+And all the gossip, all zipped
+沈黙は時には Much stronger than the blades
+ぱっと見甘い 言葉が Fly
+実体がないから見えない
+銃創が深いとこに作りだす Black hole
+Words are bullets
+当たっても Won't let them in my body
+Shoot
+Come on shoot me in my heart
+聞こえるわ Trigger
+Pull it now
+Right at me
+Bang
+コトダマが貫通
+とどめないでThrough
+Try in vain
+最大の防御は決して
+自分で引き金 引かないこと
+Now that I know
+誰かの Bullet よりも It's so strong
+This trigger inside me yeah
+Shoot
+Come on shoot me in my heart
+聞こえるわ Trigger
+Pull it now
+Right at me
+Bang
+コトダマが貫通
+とどめないでThrough
+Try in vain
+No triggers in my soul
+Bang
+コトダマが貫通
+とどめないでThrough
+Try in vain
+```
